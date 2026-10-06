@@ -1,0 +1,2 @@
+# premium-ball-in-cage-001-ball-in-cage-whittling-free
+Tired of shaky, uneven balls and cages that crack at the last minute? Stop guessing and start carving with a proven system that tracks your grain direction, tool angles, and every whittle—so you nail that perfect free cut every time.  This Notion lab transforms your carving practice into a repeatable, stress-free process. No more lost notes or forg
